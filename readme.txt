@@ -17,4 +17,10 @@ this is codename swordfish attack the internet protocols.
 marco...hagenaars
 agent_loki of mkultra super visor mike mckenna.
 i did xpment i einstein.
+combine blue souls with my body...........I CREATED THEM........
+
+8 days learn java.
+16 days do exploit project.......
+i know about abusing the protocol...........
+this code aint far from abusing just every protocol.
 
